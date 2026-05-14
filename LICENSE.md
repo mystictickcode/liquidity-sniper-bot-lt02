@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with exclusive liquidity sniper bot | pump-detection + front-running, the #1 liquidity sniper bot. Includes pump-detection and front-running for a faster and
 
 
 
